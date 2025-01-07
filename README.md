@@ -50,7 +50,7 @@ Land Use: Maximizes the use of underutilized urban spaces, such as rooftops and 
 ## 🌐 Find Me Online
 
 - [GitHub](https://github.com/Samruddi11/portfolioo.github.io)
-- [LinkedIn](https://www.linkedin.com/in/h-b-samruddi-5a0372306/)
+- [LinkedIn]([https://www.linkedin.com/in/h-b-samruddi-5a0372306/](https://www.linkedin.com/in/poorvi-angadi-618b52343?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app))
 
 ## Portfolio Highlights
 
